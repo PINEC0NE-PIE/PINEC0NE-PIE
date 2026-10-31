@@ -29,7 +29,7 @@ $${\color{red}𝙘𝙝𝙚𝙘𝙠\space 𝙤𝙪𝙧\space 𝙖𝙧𝙩\space �
 <p align="center">
 </a>
 <a href= https://x.com/pineatz/>
-<img src="https://img.shields.io/badge/ʚ 𝘁𝘄𝗶𝘁𝘁𝗲𝗿 = 17+ 𝘰𝘯𝘭𝘺 ɞ-737373?style=for-the-badge"
+<img src="https://img.shields.io/badge/ʚ 𝘁𝘄𝗶𝘁𝘁𝗲𝗿 = 18+ 𝘰𝘯𝘭𝘺 ɞ-737373?style=for-the-badge"
 </a>
 </p>
 <p align="center">
