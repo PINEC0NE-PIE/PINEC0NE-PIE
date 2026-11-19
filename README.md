@@ -28,12 +28,6 @@
 $${\color{red}𝙘𝙝𝙚𝙘𝙠\space 𝙤𝙪𝙧\space 𝙖𝙧𝙩\space 𝙖𝙘𝙘𝙤𝙪𝙣𝙩𝙨!}$$
 <p align="center">
 </a>
-<a href= https://x.com/pineatz/>
-<img src="https://img.shields.io/badge/ʚ 𝘁𝘄𝗶𝘁𝘁𝗲𝗿 = 18+ 𝘰𝘯𝘭𝘺 ɞ-737373?style=for-the-badge"
-</a>
-</p>
-<p align="center">
-</a>
 <a href= https://www.instagram.com/pineatz_/>
 <img src="https://img.shields.io/badge/ʚ 𝗶𝗻𝘀𝘁𝗮𝗴𝗿𝗮𝗺 ɞ-757575?style=for-the-badge"
 </a>
